@@ -1,1 +1,1 @@
-# 😷 CovCare
+# 😷 Covi Care
